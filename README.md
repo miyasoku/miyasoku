@@ -1,8 +1,8 @@
 ### Hello there! / こんにちは！👋
 
 - I'm living in Tokyo, Japan.
-- I'm still learning about programs.
-- I'm interesting for deta science.
+- I'm just teenager.
+- I'm studying something interesting.
 
 I love playing games! Thank you for visiting.
 
