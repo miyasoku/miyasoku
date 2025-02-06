@@ -1,6 +1,6 @@
 ### Hello there! / こんにちは！👋
 
-- I'm living in Tokyo, Japan.
+- I'm living in Japan.
 - I'm just teenager.
 - I'm studying something interesting.
 
